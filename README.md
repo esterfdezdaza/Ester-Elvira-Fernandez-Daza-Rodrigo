@@ -1,4 +1,3 @@
-# Ester Elvira Fernandez-Daza Rodrigo
 ## About Me ✨
 
 👩‍🎓 I'm a student at **Loughborough University** 🏴,  

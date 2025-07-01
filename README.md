@@ -9,4 +9,4 @@ currently pursuing a **Master’s in Materials Science & Engineering** 🔬.
 passionate about embracing new challenges,  
 exploring **quantum computing** ⚛️, and mastering **project management** 📊.  
 
-🔎 [Check out my Gists](https://github.com/esterfdezdaza) to see some of my work! 💻
+🔎 [Check out my Gits](https://github.com/esterfdezdaza) to see some of my work! 💻
